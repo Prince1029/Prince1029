@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @SkyZonX
+- 👋 Hi, I’m @Prince1029
 - 👀 I’m interested in Anime
 - 🌱 I’m currently learning Japanese
 - 💞️ I’m looking to collaborate on ...

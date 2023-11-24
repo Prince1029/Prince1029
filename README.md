@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Prince1029
 - 👀 I’m interested in Anime
-- 🌱 I’m currently learning Japanese
+- 🌱 I’m currently learning French
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
